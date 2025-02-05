@@ -1,1 +1,3 @@
-# Principle-Component-Analysis
+This is the link to the Miro Board
+
+https://miro.com/welcomeonboard/bGdHRVZSWk5pV3p1NEp6Y1lsSkFmV3krTXdvZnJiWm5zRy9WSGJvYXBjQjU4b0dpanJYQTdvczdOSnVzeGUyNzNWZk1tcHNBNGhZS0tBVk9SMXk1azd0VlFWSytYV1JpM1NBN3VYSVpvY0VZT2N5VHpnNTFlbHNsNlhvT2J4bkJBd044SHFHaVlWYWk0d3NxeHNmeG9BPT0hdjE=?share_link_id=878799791213
